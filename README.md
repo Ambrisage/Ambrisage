@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Ambrisage (Sage).
 - 👀 I’m interested in making new friends.
 - 🌱 I’m currently learning new crypto projects.
-- 💞️ I’m looking to collaborate on crypto.
+- 💞️ I’m looking to collaborate with my life line Ambrita my everything.💝💖 
 - 📫 How to reach me ...@ just send me a mail.
 - 😄 Pronouns: my name correctly
 - ⚡ Fun fact: I really like making people laugh.
